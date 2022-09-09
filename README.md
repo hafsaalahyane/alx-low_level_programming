@@ -1,1 +1,1 @@
-salam zoze hanya, take care thlay frassek 
+salam zoze hanya, ila qriti had README.md one day maybe maradich nkono kandwiw wa kola wahd fin dato denya wakha chak fik nti li maradich tbqay dwi meaya "ha lghder bda" but i wanna thank you about everthing because i think about one of my reel friend and ana eandi ghir 2 friends in this world lmhm take care thlay frassek 
